@@ -1,9 +1,9 @@
-## A Pacific Playlist
-### What does the Pacific Ocean sound like to you?
+# A Pacific Playlist
+## What does the Pacific Ocean sound like to you?
 ### A ukulele strummed quietly in a boathouse?
 ### A sea shanty sung far from home?
 ### Surf rock blaring from a radio?
-### Belonging? Nostalgia? Pleasure? Pain?
+## Belonging? Nostalgia? Pleasure? Pain?
 
 You can use the [editor on GitHub](https://github.com/seanfraga/PacificPlaylist/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 

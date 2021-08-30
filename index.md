@@ -17,7 +17,7 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Aliquam purus metus, fa
 Ut tempor tellus sed libero pretium tincidunt id a neque. Aenean augue odio, tristique sit amet consequat convallis, mattis eget enim. Nullam et mattis nunc. Vivamus tincidunt convallis ligula in pharetra. Curabitur interdum justo nunc, eu lobortis lectus suscipit congue. Maecenas sit amet aliquet nunc. Pellentesque habitant morbi tristique senectus et netus et malesuada fames ac turpis egestas. Suspendisse nisl tortor, suscipit vitae ante id, egestas suscipit felis. Aenean sed magna maximus, aliquet velit ac, posuere nulla. Cras auctor, eros et pharetra vestibulum, elit sapien sollicitudin felis, at accumsan augue turpis ac felis. Etiam mauris augue, condimentum eu nulla commodo, elementum posuere urna.
 
 ### "Christmas Island" by Ella Fitzgerald (Tommy Trojan)
-*[Apple Music](https://music.apple.com/us/album/christmas-island/1541905345?i=1541905549) \* *[Spotify](https://open.spotify.com/track/4cy0jYlAbtgBmOq05AzDt3) \* *[YouTube](https://www.youtube.com/watch?v=4wtQgQfLl9Y)
+*[Apple Music](https://music.apple.com/us/album/christmas-island/1541905345?i=1541905549) \- [Spotify](https://open.spotify.com/track/4cy0jYlAbtgBmOq05AzDt3) \- [YouTube](https://www.youtube.com/watch?v=4wtQgQfLl9Y)
 
 ***
 

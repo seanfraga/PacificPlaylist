@@ -12,9 +12,13 @@ Belonging? Nostalgia?
 
 Pleasure? Pain?
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Aliquam purus metus, faucibus nec malesuada tempus, luctus vel turpis. Donec accumsan eros non iaculis sagittis. Vivamus eleifend enim ut ligula malesuada consectetur. Integer a dolor aliquet, eleifend nisl et, volutpat elit. Sed tincidunt condimentum ex, ac tincidunt nisi porta vel. Morbi interdum sapien eu metus mollis sodales. Ut luctus porttitor ipsum, ut sollicitudin lectus. Donec vestibulum magna condimentum ligula ullamcorper commodo. Sed ornare tincidunt consectetur. Pellentesque habitant morbi tristique senectus et netus et malesuada fames ac turpis egestas. Praesent fringilla eu risus dictum vulputate. Pellentesque cursus risus vel lorem placerat venenatis. Maecenas sit amet volutpat enim, eget mattis ante. Phasellus ac placerat felis. Nulla facilisi.
+I teach a class at U.S.C. called "Pacific Beaches and the American Imagination." In our first assignment, I ask students to pick a song broadly related to the Pacific Ocean and make an argument for its inclusion on our course playlist. Doing so is a way of indexing the Pacific's place in students' imaginations--how they see the ocean and what it means to them. This is a weird assignment, more a creative reading response than research essay, but students dove in, immersed themselves, and began to swim.
+
+Their selections are as vast and diverse as the ocean itself. Many of these songs address the Pacific Ocean as a geographic place, known best, perhaps, through its beaches, whether we're waxing down our surfboards with The Beach Boys or watching the tide roll away with Otis Redding. Some selections celebrate the sunny, idealized Pacific Coast ("California Gurls"), while others press towards its bleaker realities ("Sweet Life" and "Californication"). And several songs, while not explicitly about the Pacific, seemed to students to capture a Pacific vibe: of freedom, melancholy, or the potential of an expansive horizon. Like the ocean itself, this playlist contains multiple overlapping Pacific Worlds.
 
 Listen for yourself. Access the playlist on [Apple Music](https://music.apple.com/us/playlist/a-pacific-playlist/pl.u-leylMdYhjR7XPB), [Spotify](https://open.spotify.com/playlist/66KRqJfSzXCnAwjnMiIOsW?si=f37d3043b1af4578), or [YouTube](https://youtube.com/playlist?list=PLEge1Hx0qiwTY44TIaOKxkYXvSUJG3GXX). And lose yourself in these Pacific currents.
+
+*- [Sean Fraga](https://seanfraga.com) *
 
 ### Track Listing
 1. [Surfin' USA by The Beach Boys (from Amera)](#surfin-usa-by-the-beach-boys-from-amera)

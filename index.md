@@ -18,7 +18,7 @@ Listen for yourself. Access the playlist on [Apple Music](https://music.apple.co
 
 ### Track Listing
 1. ["Christmas Island" by Ella Fitzgerald (Tommy Trojan)](https://seanfraga.github.io/PacificPlaylist/#christmas-island-by-ella-fitzgerald-tommy-trojan)
-2. [Surfin' USA by The Beach Boys (from Amera)]
+2. [Surfin' USA by The Beach Boys (from Amera)](#surfin-usa-by-the-beach-boys-from-amera)
 3. [Surfin' USA by The Beach Boys (from Skylar Sepulveda)]
 4. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Jolie N)]
 5. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Marcos Angelini)]

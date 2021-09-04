@@ -17,30 +17,25 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Aliquam purus metus, fa
 Listen for yourself. Access the playlist on [Apple Music](https://music.apple.com/us/playlist/a-pacific-playlist/pl.u-leylMdYhjR7XPB), [Spotify](https://open.spotify.com/playlist/66KRqJfSzXCnAwjnMiIOsW?si=f37d3043b1af4578), or [YouTube](https://youtube.com/playlist?list=PLEge1Hx0qiwTY44TIaOKxkYXvSUJG3GXX). And lose yourself in these Pacific currents.
 
 ### Track Listing
-1. ["Christmas Island" by Ella Fitzgerald (Tommy Trojan)](https://seanfraga.github.io/PacificPlaylist/#christmas-island-by-ella-fitzgerald-tommy-trojan)
-2. [Surfin' USA by The Beach Boys (from Amera)](#surfin-usa-by-the-beach-boys-from-amera)
-3. [Surfin' USA by The Beach Boys (from Skylar Sepulveda)]
+1. [Surfin' USA by The Beach Boys (from Amera)](#surfin-usa-by-the-beach-boys-from-amera)
+2. [Surfin' USA by The Beach Boys (from Skylar Sepulveda)](#surfin-usa-by-the-beach-boys-from-skylar-sepulveda)
+3. [Surfin' USA by The Beach Boys (from C.D.)]
 4. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Jolie N)]
 5. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Marcos Angelini)]
-6. [Sweet Disposition by The Temper Trap (from Rachel Grimaldi)]
-7. [Salish Phantoms by Ella Kaale (from Ella Kaale)]
-8. [California Song by Patrick James (from Mitchell Carter)]
-9. [Where You Are from "Moana" (from Jon)]
-10. [How Far I'll Go from "Moana" (from Via McBride)]
-11. [Karappo no Isu by Taeko Onuki (from Joshua Herrera)]
-12. [Sweet Life by Frank Ocean (from Zander Tate)]
-13. [I Wanna Go by Britney Spears (from Ari H)]
-14. [Californication by The Red Hot Chili Peppers (from Camryn Cook)]
-15. [For The Coast by The Satellite Section (from minna andrea b. belidhon)]
-16. [Under the Sea from "The Little Mermaid" (from Ethan Newman)]
-17. [Dripping Sun by Kikagaku Moyo (from henry)]
-18. [(Sittin' On) Dock of the Bay by Otis Redding (from Declan Øsborne)]
-19. [California Gurls by Katy Perry (ft. Snoop Dogg) (from Maya Fielding)]
-
-### "Christmas Island" by Ella Fitzgerald (Tommy Trojan)
-*[Apple Music](https://music.apple.com/us/album/christmas-island/1541905345?i=1541905549) \- [Spotify](https://open.spotify.com/track/4cy0jYlAbtgBmOq05AzDt3) \- [YouTube](https://www.youtube.com/watch?v=4wtQgQfLl9Y)*
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Aliquam purus metus, faucibus nec malesuada tempus, luctus vel turpis. Donec accumsan eros non iaculis sagittis. Vivamus eleifend enim ut ligula malesuada consectetur. Integer a dolor aliquet, eleifend nisl et, volutpat elit. Sed tincidunt condimentum ex, ac tincidunt nisi porta vel. Morbi interdum sapien eu metus mollis sodales. Ut luctus porttitor ipsum, ut sollicitudin lectus. Donec vestibulum magna condimentum ligula ullamcorper commodo. Sed ornare tincidunt consectetur. Pellentesque habitant morbi tristique senectus et netus et malesuada fames ac turpis egestas. Praesent fringilla eu risus dictum vulputate. Pellentesque cursus risus vel lorem placerat venenatis. Maecenas sit amet volutpat enim, eget mattis ante. Phasellus ac placerat felis. Nulla facilisi.
+6. [Sweet Disposition by The Temper Trap (from Rachel Grimaldi)](#sweet-disposition-by-the-temper-trap-from-rachel-grimaldi)
+7. [Salish Phantoms by Ella Kaale (from Ella Kaale)](#salish-phantoms-by-ella-kaale-from-ella-kaale)
+8. [California Song by Patrick James (from Mitchell Carter)](#california-song-by-patrick-james-from-mitchell-carter)
+9. [Where You Are from "Moana" (from Jon)](#where-you-are-from-moana-from-jon)
+10. [How Far I'll Go from "Moana" (from Via McBride)](#how-far-ill-go-from-moana-from-via-mcbride)
+11. [Karappo no Isu by Taeko Onuki (from Joshua Herrera)](#karappo-no-isu-by-taeko-onuki-from-joshua-herrera)
+12. [Sweet Life by Frank Ocean (from Zander Tate)](#sweet-life-by-frank-ocean-from-zander-tate)
+13. [I Wanna Go by Britney Spears (from Ari H)](#i-wanna-go-by-britney-spears-from-ari-h)
+14. [Californication by The Red Hot Chili Peppers (from Camryn Cook)](#californication-by-the-red-hot-chili-peppers-from-camryn-cook)
+15. [For The Coast by The Satellite Section (from minna andrea b. belidhon)](#for-the-coast-by-the-satellite-section-from-minna-andrea-b-belidhon)
+16. [Under the Sea from "The Little Mermaid" (from Ethan Newman)](#under-the-sea-from-the-little-mermaid-from-ethan-newman)
+17. [Dripping Sun by Kikagaku Moyo (from henry)](#dripping-sun-by-kikagaku-moyo-from-henry)
+18. [(Sittin' On) Dock of the Bay by Otis Redding (from Declan Øsborne)](#sittin-on-dock-of-the-bay-by-otis-redding-from-declan-øsborne)
+19. [California Gurls by Katy Perry (ft. Snoop Dogg) (from Maya Fielding)](#california-gurls-by-katy-perry-ft-snoop-dogg-from-maya-fielding)
 
 ### Surfin' USA by The Beach Boys (from Amera) 
 *[Apple Music](https://music.apple.com/us/album/surfin-u-s-a/1443101236?i=1443101252) \- [Spotify](https://open.spotify.com/track/2EPr9Wx7e1cpGEbNAtuN7x?si=b2e3c507e8a042f5) \- [YouTube](https://www.youtube.com/watch?v=H0bhSGfKTs4)*

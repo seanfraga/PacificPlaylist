@@ -18,7 +18,7 @@ Their musical selections are as vast and diverse as the ocean itself. Many of th
 
 Listen for yourself. Access the playlist on [Apple Music](https://music.apple.com/us/playlist/a-pacific-playlist/pl.u-leylMdYhjR7XPB), [Spotify](https://open.spotify.com/playlist/66KRqJfSzXCnAwjnMiIOsW?si=f37d3043b1af4578), or [YouTube](https://youtube.com/playlist?list=PLEge1Hx0qiwTY44TIaOKxkYXvSUJG3GXX). And lose yourself in these Pacific currents.
 
-*- [Sean Fraga](https://seanfraga.com) *
+*- [Sean Fraga](https://seanfraga.com)*
 
 ### Track Listing
 1. [Surfin' USA by The Beach Boys (from Amera)](#surfin-usa-by-the-beach-boys-from-amera)

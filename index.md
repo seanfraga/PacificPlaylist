@@ -20,7 +20,7 @@ Listen for yourself. Access the playlist on [Apple Music](https://music.apple.co
 1. [Surfin' USA by The Beach Boys (from Amera)](#surfin-usa-by-the-beach-boys-from-amera)
 2. [Surfin' USA by The Beach Boys (from Skylar Sepulveda)](#surfin-usa-by-the-beach-boys-from-skylar-sepulveda)
 3. [Surfin' USA by The Beach Boys (from C.D.)]
-4. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Jolie N)]
+4. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Jolie N)](#somewhere-over-the-rainbow--what-a-wonderful-world-by-israel-kamakawiwoʻole-from-jolie-n)
 5. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Marcos Angelini)]
 6. [Sweet Disposition by The Temper Trap (from Rachel Grimaldi)](#sweet-disposition-by-the-temper-trap-from-rachel-grimaldi)
 7. [Salish Phantoms by Ella Kaale (from Ella Kaale)](#salish-phantoms-by-ella-kaale-from-ella-kaale)

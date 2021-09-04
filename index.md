@@ -18,6 +18,24 @@ Listen for yourself. Access the playlist on [Apple Music](https://music.apple.co
 
 ### Track Listing
 1. ["Christmas Island" by Ella Fitzgerald (Tommy Trojan)](https://seanfraga.github.io/PacificPlaylist/#christmas-island-by-ella-fitzgerald-tommy-trojan)
+2. [Surfin' USA by The Beach Boys (from Amera)]
+3. [Surfin' USA by The Beach Boys (from Skylar Sepulveda)]
+4. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Jolie N)]
+5. [Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Marcos Angelini)]
+6. [Sweet Disposition by The Temper Trap (from Rachel Grimaldi)]
+7. [Salish Phantoms by Ella Kaale (from Ella Kaale)]
+8. [California Song by Patrick James (from Mitchell Carter)]
+9. [Where You Are from "Moana" (from Jon)]
+10. [How Far I'll Go from "Moana" (from Via McBride)]
+11. [Karappo no Isu by Taeko Onuki (from Joshua Herrera)]
+12. [Sweet Life by Frank Ocean (from Zander Tate)]
+13. [I Wanna Go by Britney Spears (from Ari H)]
+14. [Californication by The Red Hot Chili Peppers (from Camryn Cook)]
+15. [For The Coast by The Satellite Section (from minna andrea b. belidhon)]
+16. [Under the Sea from "The Little Mermaid" (from Ethan Newman)]
+17. [Dripping Sun by Kikagaku Moyo (from henry)]
+18. [(Sittin' On) Dock of the Bay by Otis Redding (from Declan Øsborne)]
+19. [California Gurls by Katy Perry (ft. Snoop Dogg) (from Maya Fielding)]
 
 ### "Christmas Island" by Ella Fitzgerald (Tommy Trojan)
 *[Apple Music](https://music.apple.com/us/album/christmas-island/1541905345?i=1541905549) \- [Spotify](https://open.spotify.com/track/4cy0jYlAbtgBmOq05AzDt3) \- [YouTube](https://www.youtube.com/watch?v=4wtQgQfLl9Y)*

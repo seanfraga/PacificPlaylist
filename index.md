@@ -48,6 +48,8 @@ The dominant role the simple existence of the ocean plays on the identity of its
 
 The Beach Boys effectively capture the incomparable energy that the Pacific Ocean offers through this upbeat joyous song that celebrates the carefree surf culture of California. Such iconic song deserves a place on the course playlist as it encapsulates the unique spirit of the Pacific Ocean and its dominant presence on the places it accompanies.
 
+*- Amera*
+
 ### Surfin' USA by The Beach Boys (from Skylar Sepulveda) 	
 *[Apple Music](https://music.apple.com/us/album/surfin-u-s-a/1443101236?i=1443101252) \- [Spotify](https://open.spotify.com/track/2EPr9Wx7e1cpGEbNAtuN7x?si=b2e3c507e8a042f5) \- [YouTube](https://www.youtube.com/watch?v=H0bhSGfKTs4)*
 
@@ -63,6 +65,8 @@ When thinking about the sounds that resonate from pacific beaches a few come to 
 
 Pacific beaches only emit sounds of excitement, adventure and relaxation to me, and this is why I felt as if the Beach Boys had perfectly captured the essence of the ocean within their song. “Surfin’ U.S.A” allows the joy and upbeat feelings of beach goers to be captured through music and is available to people all around the world so that they can have a taste of what going to a pacific beach is truly like. The Beach Boys are an iconic group to rock/pop history, they took the world by storm and gave everyone an inside scoop to pacific beaches. The course playlist would be incomplete without this famous work of art that transformed the way the world can hear about some of the most iconic pacific beaches in a cheerful manner.
 
+*- Skylar Sepulveda*
+
 ### Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Jolie N) 
 *[Apple Music](https://music.apple.com/us/album/somewhere-over-the-rainbow-what-a-wonderful-world/6920356?i=6920352) \- [Spotify](https://open.spotify.com/track/3oQomOPRNQ5NVFUmLJHbAV?autoplay=true) \- [YouTube](https://www.youtube.com/watch?v=V1bFr2SWP1I)*
 
@@ -75,6 +79,8 @@ Although the original versions of “Over the Rainbow” and “What a Wonderful
 Kamakawiwo’ole’s voice is accompanied by a single ukulele, an instrument rooted in modern Hawaiian music. The simplicity of the song “Somewhere Over the Rainbow/What a Wonderful World” and its instrumentation makes it feel intimate as Kamakawiwo’ole tells a story about his home. In the mid-1850s sugarcane plantations became a prominent driver of Hawaii’s economy, and as the number of sugarcane and pineapple plantations grew, so did the number of immigrants. Many Portuguese, Japanese, Okinawan, Chinese, and Filipino workers immigrated to Hawaii, each bringing their own cultures and customs. The Portuguese brought the braguinha, an instrument smaller than a guitar that only had four strings. After being introduced to Hawaii it evolved into the ukulele, meaning “jumping flea” for the way that one’s fingers moved when playing it. The ukulele’s popularity grew as it became the most well-known instrument of Hawaii. The ukulele serves as a subtle accompaniment to Kamakawiwo’ole’s soulful voice.
 
 This song reminds me of my childhood. From another perspective of someone who may not be from Hawaii, this song may just be another artist’s cover of two classic songs. But I see Kamakawiwo’ole’s as the original and the one with the most connected to my home of Hawaii. If my essay accomplishes anything, I hope it spreads Kamakawiwo’ole’s voice and passion to those who have yet to learn his name. 
+
+*- Jolie N*
 
 ### Somewhere Over the Rainbow / What a Wonderful World by Israel Kamakawiwoʻole (from Marcos Angelini) 
 *[Apple Music](https://music.apple.com/us/album/somewhere-over-the-rainbow-what-a-wonderful-world/6920356?i=6920352) \- [Spotify](https://open.spotify.com/track/3oQomOPRNQ5NVFUmLJHbAV?autoplay=true) \- [YouTube](https://www.youtube.com/watch?v=V1bFr2SWP1I)*
@@ -91,6 +97,8 @@ Moving onto a more personal interpretation, I am going to analyze how some of th
 
 Finally, I believe that what eternally bonds this song with the Pacific is the impact that it has had on Hawaiian people and culture. As mentioned before, Facing Future is the most successful Hawaiian music album of all time, and it was a part of almost every Hawaiian’s life in its times of popularity. The album and song even became popular outside of Hawaii, receiving a great deal of international recognition. This is important because other than being a musician, Kamakawiwoʻole was also an activist for Hawaiian sovereignty, fighting for the livelihood of native communities and lands. Kamakawiwoʻole’s success from “Over the Rainbow” gave him a platform to be able to share his activism through his music to Hawaii and the rest of the world. For example, in the same album as “Over the Rainbow”, Kamakawiwoʻole released the song “Hawaii 78”. “Hawaii 78” is a clear demonstration of Kamakawiwoʻole’s views on the industrial effects on Hawaiian land and people. Lyrics from this song include “ If just for a day our king and queen / Would visit all these islands and saw everything / How would they feel about the changes of our land? / Could you just imagine if they were around / And saw highways on their sacred grounds / How would they feel about this modern city life? / Tears would come from each other's eyes / As they would stop to realize / That our people are in great great danger now”. It is clear that Kamakawiwoʻole cared about the native land and people, and the success from his music offered an audience to which his beliefs could be heard. This is what ties the song to the pacific so strongly, when “Over the Rainbow” and Kamakawiwoʻole’s career as a whole could have had a larger more meaningful impact on Hawaii and its people.
 
+*- Marcos Angelini*
+
 ### Sweet Disposition by The Temper Trap (from Rachel Grimaldi) 
 *[Apple Music](https://music.apple.com/au/album/sweet-disposition-single/327438367) \- [Spotify](https://open.spotify.com/track/5RoIXwyTCdyUjpMMkk4uPd?si=cb35049a9df145ac) \- [YouTube](https://www.youtube.com/watch?v=vN7HQrgakZU)*
 
@@ -101,6 +109,8 @@ The pre-chorus of the song, “a moment, a love, a dream aloud, a kiss, a cry, o
 “Sweet Disposition” should be on the class playlist because it represents one of the class’ settled themes from Monday. It stood for leisure, relaxation, and perfection. I’m majoring in screenwriting, having said that I draw very deep connections to art. Music to me, following this role, has always held a source of inspiration. When I listen to music, I see scenes. Sweet Disposition was one of the songs that had me picturing a couple driving along the Pacific coast, hair flowing in the wind, arm out of a red mustang. Just the fact that this was what my imagination had envisioned for this song means that I, myself am guilty of disregarding the bad about the Oceans and focusing on the ‘Hollywood’ version.
 
 While connotatively, “Sweet Disposition” stands for happiness and youth, it holds a sort of complexity also seen with the media’s view of Pacific beaches. On surface level, they both seem like strong sentiments but they both hold something darker underneath. The beaches are filled with waste, and the song is filled with the ideas of throwing away everything for a single moment.
+
+*- Rachel Grimaldi*
 
 ### Salish Phantoms by Ella Kaale (from Ella Kaale) 
 *Apple Music (N/A) \- Spotify (N/A) \- [YouTube](https://youtu.be/zveJpmHQy6k)*
@@ -113,6 +123,8 @@ Furthermore, “Salish Phantoms” exemplifies an essential characteristic of th
 
 “Salish Phantoms” is perhaps not a piece of music for everyone, and it would be somewhat of a downer driving the Pacific Coast Highway at sunset. However, it deserves a spot on the class playlist because it mimics the sounds of an iconic natural feature of the Pacific Ocean and explores the simultaneous grandiosity and horror of the deep blue. Ultimately, “Salish Phantoms” serves to offer an alternative view of the Pacific Ocean, one not often considered by Americans or other capitalist cultures that seek to extract only certain parts of the region’s resources for commercial gain. If these groups do not proceed with caution, it is unfortunately possible that they could be met with the mysterious unforgiving side of the Pacific. 
 
+*- Ella Kaale*
+
 ### California Song by Patrick James (from Mitchell Carter) 
 *[Apple Music](https://music.apple.com/us/album/california-song/1538033372?i=1538033590) \- [Spotify](https://open.spotify.com/search/california%20song) \- [YouTube](https://www.youtube.com/watch?v=IKaRuBR_g58)*
 
@@ -123,6 +135,8 @@ The lyrics of this song recount a struggle between partners. The artist begins t
 The instrumentation of this song is mainly supported by a paced and relaxed guitar riff with a non-intrusive drumbbeat in the background. As a whole, it sounds similar to an old indie song, a song you would play driving down the coast or laying on the beach. This component of the song identifies with a different aspect of California, the California that is seen in most movies and songs. The “false hope” I discussed in the previous paragraph is integral to the lyrics and their relation to California, as well as life in California, but that image is not what defines this place. There still exists beauty and dreaminess, endless beaches and warm weather, winter surf swells and happiness. The instruments and beats create a picture of what the artist's life would look like if his lover did “meet \[him] in California.” (James 1:52) Without the lyrics it becomes a song where both characters are happy and the dream is real, but with the lyrics, it becomes a dream and a wish that is perfect but will never exist.
 
 It is the contradiction between the lyrics and the instrumentation that makes this song the perfect representation of California and the Pacific coast. The instrumentation portrays a traditional image of California, an image that most people have of the west coast; beautiful sunsets, endless beaches, and sun tan lotion. But, the lyrics highlight the darker and sadder realities of this place; the false sense of escape, the drowning of individuality and of dreams. I guess songs are supposed to capture beauty in the harshness of our reality, so maybe it’s not a bad thing that California is portrayed in such a pleasant way. But, to understand everything and to feel all aspects of this place, you must listen to the California Song.
+
+*- Mitchell Carter*
 
 ### Where You Are from "Moana" (from Jon) 
 *[Apple Music](https://music.apple.com/us/album/where-you-are/1440634928?i=1440635168) \- [Spotify](https://open.spotify.com/track/2bwSCIuNtVrQPVddCi8sOW?si=bfd0b71802314082) \- [YouTube](https://www.youtube.com/watch?v=NVzDrqOmYiY)*
@@ -141,6 +155,8 @@ When we actually take a look at the lyrics, that melancholic feeling starts to m
 
 If you couldn’t tell, Taeko Onuki’s “Karappo no Isu” is a special song to me. It reminds me that it’s okay to feel lost from time to time. Feeling alone is, ironically, something that brings many of us together. The reason I chose this song for the course playlist, however, is to remind the class that different takes and views of the Pacific Ocean have been and will continue to be made. At the same time, I also want to introduce the class to one of many creative musicians from the other side of the Pacific that I feel should be appreciated and hopefully catch their curiosity. From time to time, I enjoy spending time searching for new music, whether that be looking into genres I haven’t explored in the past or getting invested into bands I end up finding. While I hope that someone will find this song interesting and look into the jazz scene in Japan more, I know that’s just wishful thinking on my part. 
 
+*- Joshua Herrera*
+
 ### Sweet Life by Frank Ocean (from Zander Tate) 
 *[Apple Music](https://music.apple.com/us/album/sweet-life/1440760117?i=1440760763) \- [Spotify](https://open.spotify.com/track/6MEDfjHxnVNcYmHe3mM6L2?si=5674940ce3394111) \- [YouTube](https://youtu.be/y14F2RQW7h4)*
 
@@ -154,6 +170,8 @@ Ocean’s background greatly informs his perspective on Pacific beaches. Ocean w
 
 “Sweet Life” is well positioned to be on a Pacific Beach playlist as it matches the West coast vibe while simultaneously commenting on the Pacific lifestyle. Ocean created a song that is enjoyable to listen to that still retains depth. Pacific beach anthems by the likes of Katy Perry are important to a playlist on Pacific beaches; however, Ocean has created a song with the same playability that actually serves as a critique of the superficiality expressed in many other songs about the Pacific coast. Just as Bruce Springstein critiqued the United States with “Born in the USA” but subsequently created a patriotic anthem, Ocean has dissected the leisurely lifestyle of wealthy West coasters all whilst giving them a fun song to play in their convertibles.
 
+*- Zander Tate*
+
 ### I Wanna Go by Britney Spears (from Ari H) 
 *[Apple Music](https://music.apple.com/us/artist/i-wanna-go-britney-spears/431675274) \- [Spotify](https://open.spotify.com/album/2JWS2mcVWOgoEv4cpfxp94) \- [YouTube](https://www.youtube.com/watch?v=T-sxSd1uwoU)*
 
@@ -166,6 +184,8 @@ Moreover, Britney exhibits includes a recurring theme of the “dark” as well 
 Lastly, Britney’s “Need for release”, can relate to a different aspect of the Pacific Coast, which is the romanticism of the coast, as a place of laid-backness and vibes. It is a place of fun, with the entertainment business having most of its roots on the West Coast. In addition, the West Coast is notorious for surfing, which adds to the “need for release” in the sense of letting loose from work. On the same note, Spears says “I wanna blow out”, which once again speaks to the West Coast’s romanticized image. In saying she wants to blow out, and needs release, Britney is portraying Pacific culture as one of parties, lust, and letting loose to the fullest extent.
 
 Ultimately, while Britney Spears’ “I Wanna Go” may seem like another generic pop song, it perfectly embodies several aspects of outsiders’ perspective of the West, as well as Pacific culture. While I don’t think Britney Spears thought of these lyrics in this way, she mirrors her lyrics in the portrayal of her life on reality television and such. From my East Coast perspective, queen Britney has always reflected the Pacific culture by being glamorous, but also by including sex positivity, the idea of letting go, and partying themes in her songs. 
+
+*- Ari H*
 
 ### Californication by The Red Hot Chili Peppers (from Camryn Cook) 
 *[Apple Music](https://music.apple.com/us/album/californication/945575406?i=945575413) \- [Spotify](https://open.spotify.com/track/48UPSzbZjgc449aqz8bxox?si=9dbed892e10d4f05) \- [YouTube](https://www.youtube.com/watch?v=YlUKcNNmywk)*
@@ -181,6 +201,8 @@ Californication critiques how Hollywood sells a manufactured reality. When they 
 
 Californication deserves a spot on the course playlist because it confronts listeners with the reality of pop culture and forces them to take a step back and look past the romanticized life of the west. While the Pacific coast is home to many great places and people, it is important to remember that everything is not always as it seems. There is so much more to western culture than just fame, money, and success. The diverse pacific coast holds many great cultures that are overlooked because of the stereotypical western lifestyle that is promoted through media. On our pacific playlist, Californication by the Red Hot Chili Peppers can serve as a reminder to forget about the California dream and acknowledge all of the other incredible things that the Pacific coast has to offer. 
 
+*- Camryn Cook*
+
 ### For The Coast by The Satellite Section (from minna andrea b. belidhon) 
 *[Apple Music](https://music.apple.com/us/album/for-the-coast-single/1564737213) \- [Spotify](https://open.spotify.com/track/6T5HAs02SGACTQyMgNBJTW?si=45db917814804fab) \- [YouTube](https://youtu.be/I6BPCGN-sl8)*
 
@@ -193,6 +215,8 @@ The chorus begins with “Oh, but you finally feel at home again, throwing cauti
 The second verse questions, “Is there magic in these waves? Do they have a will to save?” In some cultures, ocean water is believed to possess healing properties. With this in mind, some people traverse the ocean in desperation or in the hopes of healing themselves and starting anew. Until then, the journey continues. “You had landed on the coast, With a single bag of clothes, Laid on your back, and stared up to the sky.” Eventually, we reach the end of a chapter. Then, we begin again. With one bag of clothes, with more room to grow, and with more spaces to fill. We look up to the sky, reflect on the stars, and appreciate where we land as the melody of the songs captures the solemn yet serene feeling of a bittersweet adventure.
 
 The Pacific Ocean is a living entity. It welcomes anyone, the directionless, the adventurers, the crestfallen, the ecstatic. It holds a different meaning to people across the globe. As for me, it represents a cycle of life, home, hope, adventure, and somber yet ethereal beginnings and endings. The song “For The Coast” was able to depict all of these feelings lyrically and melodically and so, it belongs on the class Pacific playlist. 
+
+*- minna andrea b. belidhon*
 
 ### Under the Sea from "The Little Mermaid" (from Ethan Newman) 
 *[Apple Music](https://music.apple.com/us/album/under-the-sea/1440661291?i=1440661297) \- [Spotify](https://open.spotify.com/track/6oYkwjI1TKP9D0Y9II1GT7) \- [YouTube](https://www.youtube.com/watch?v=ChNJ_FMtSnk)*
@@ -213,6 +237,8 @@ Gently concluding his song, Redding attempts to move away from the toils of his 
 
 Throughout American media, the concept of rest is seen as a luxury that should, ideally, be attained through recreation among hospitable locations, namely: the beach. The Dock of the Bay challenges this concept of recreation and its association with Pacific Coast while also examining depressive feelings and one’s urge to hide them in settings deemed socially relaxng or joyous. Furthermore, it's a gorgeous song and I don't see any reason why it shouldn’t be on a Pacific Playlist. 
 
+*- Declan Øsborne*
+
 ### California Gurls by Katy Perry (ft. Snoop Dogg) (from Maya Fielding)
 *[Apple Music](https://music.apple.com/us/album/california-gurls-feat-snoop-dogg/716192216?i=716192621) \- [Spotify](https://open.spotify.com/track/6tS3XVuOyu10897O3ae7bi?si=1d244de93ef542cc) \- [YouTube](https://www.youtube.com/watch?v=F57P9C4SAW4)*
 
@@ -226,3 +252,5 @@ Perry’s pre-chorus verse provides another opportunity to emphasize the idea of
 Similarly, Perry’s collaborator on the song, Snoop Dogg, brings his own, different representation of the Californian party lifestyle in his verses. Snoop Dogg combines a classic rap-pop melody with expressive lyrics both to anchor this song firmly within the traditional Los Angeles music stylings and also assert how he feels about California beach culture. Just as Perry uses descriptive language to describe the carefree beach culture of the Pacific, Snoop Dogg sings “Wild, wild west coast, these are the girls I love the most”3, claiming that the party culture in California is strong and superior to others. In addition, Snoop later raps, “She drive a jeep and live on the beach; I'm okay I won't play I love the bay Just like I love L.A., Venice Beach and Palm Springs, summertime is everything”4. This line, along with many others, is infused with imagery about California. He highlights the traditional beach vehicle: a Jeep. Snoop also gives the listener a plethora of Pacific party references, calling our attention to the iconic Los Angeles beach - Venice Beach - and perhaps the most recognizable Los Angeles desert party location, Palm Springs. Not only do the lyrics speak volumes about the clear relationship to the Pacific beach culture, but the melody and stylings of Snoop’s verse point to a larger theme of rap culture in Los Angeles, something extremely relevant to the party culture tied to the beaches. For decades, Los Angeles has been the center of rap and pop music production, with many songs capitalizing on the carefree, wild nature the Pacific beaches bring. Snoop Dogg’s use of a slight dragged-out inflection on words such as “Palm Springs” echoes the traditional pop-rap sound present in many West Coast albums. Therefore, Snoop’s verse, while continuing Perry’s imagery-heavy lyricism, introduces another quite distinct element of Pacific beach culture representation, thus furthering the notion that California Gurls is the perfect California beach song.
 
 Although there are many songs that could classify themselves as the quintessential Pacific beach anthem, few compare to the picture perfect lyrical descriptions and melody that California Gurls presents. Both Katy Perry and Snoop Dogg present us with classic Los Angeles imagery, placing the listener into a fantastical world filled with palm trees, tropical drinks, and the golden sands of the Pacific Coast. Additionally, the blend of Perry's classic, upbeat pop tempo and Snoop’s seamless rap verse creates the ideal song for a Pacific beach party. The two styles also reflect the merging of two of the biggest musical styles in Los Angeles, with Katy Perry and Snoop Dogg working together despite being vastly different artists in style and genre. In the ideal Pacific playlist, California Gurls unquestionably deserves to be represented.
+
+*- Maya Fielding*

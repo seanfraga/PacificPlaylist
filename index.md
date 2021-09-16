@@ -71,7 +71,7 @@ Pacific beaches only emit sounds of excitement, adventure and relaxation to me, 
 
 *- Skylar Sepulveda*
 
-### Surfin' USA by The Beach Boys (from Skylar Sepulveda) 	
+### Surfin' USA by The Beach Boys (from Cameron Davidson) 	
 *[Apple Music](https://music.apple.com/us/album/surfin-u-s-a/1443101236?i=1443101252) \- [Spotify](https://open.spotify.com/track/2EPr9Wx7e1cpGEbNAtuN7x?si=b2e3c507e8a042f5) \- [YouTube](https://www.youtube.com/watch?v=H0bhSGfKTs4)*
 
 When one imagines a Pacific Beach, there are many images that may come to mind. Perhaps they envision the size and scope of the ocean and what lies within it and how meager we are compared to its awesome power, or perhaps they think of an overly commercialized tourist trap. For many Americans, however, (and people all over the world) the one thing that they associate with Pacific Beaches more than anything else is surfing and the concept of fun, leisure, and the escape from dull, everyday life that it represents. There are countless examples of surfing and this vision of California Culture in pop culture and especially music, but one of the first, most well known, and perhaps the quintessential example of this phenomena is its portrayal in the music of the Beach Boys. In their 1963 single “Surfin USA” the Beach Boys encapsulate an idea that will forever be tied to pacific beaches and thus perform a song that any Pacific Playlist wouldn’t be complete without.
